@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# Edgar Rangel's UX Journal
